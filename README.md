@@ -1,1 +1,0 @@
-# SDP_assignment_6_Sapan_Miras
